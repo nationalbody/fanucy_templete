@@ -1,0 +1,1 @@
+# fanucy_templete
